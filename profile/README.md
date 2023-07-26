@@ -1,1 +1,1 @@
-**Nuovo profilo: [@stockdroidcommunity](github.com/stockdroidcommunity)**
+**Nuovo profilo: [@stockdroid](github.com/stockdroid)**
